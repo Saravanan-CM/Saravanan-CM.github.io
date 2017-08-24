@@ -1,2 +1,0 @@
-# saravanancm.io
-Personal CV
